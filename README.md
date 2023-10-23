@@ -1,1 +1,1 @@
-# jedward-s.github.io
+# Joseph D. Edwards, PhD
